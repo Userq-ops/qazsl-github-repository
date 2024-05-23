@@ -1,0 +1,1 @@
+# qazsl-github-repository
